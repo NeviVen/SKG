@@ -1,1 +1,1 @@
-* *Coursework VSU (1 course)__
+* *Coursework VSU (1 course)* *
